@@ -7,3 +7,5 @@ I study in Netology
 Programmer yahoo!!!
 
 Today another good day
+
+Tratata, tratata, odnoznachno tratata
